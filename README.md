@@ -3,7 +3,8 @@
 Mi primer repositorio en github
 
 me gusta el 🍦, 
-
-me gusta el ⚽: , los 🏇
-
+me gustan los 🏇
+me gusta el ⚽: ,
+los domingos como 🍕
 me gusta la 🎵
+me gustan los 🚗 🏯
